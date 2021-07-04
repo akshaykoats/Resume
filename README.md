@@ -1,2 +1,2 @@
-# This is they Akshay Koats's resume 
+# This is thy Akshay Koats's resume 
 
